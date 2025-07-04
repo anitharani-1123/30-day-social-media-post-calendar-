@@ -1,0 +1,17 @@
+DIGITAL MARKETING 
+
+COMPANY: CODTECH IT SOLUTIONS
+
+NAME: TENNETI ANITHA RANI
+
+INTERN ID: :CT06DN1539
+
+DOMAIN: DIGITAL MARKETING
+
+DURATION: 6 WEEKS
+
+MENTOR: NEELA SANTOSH
+
+![1000011197](https://github.com/user-attachments/assets/556b0434-5277-4c74-8315-c0da115029ba)
+![1000011193](https://github.com/user-attachments/assets/6c376981-45c6-4f9b-b85a-4440490901d5)
+![1000011192](https://github.com/user-attachments/assets/d4b4e070-0b65-4cf6-8c3a-4267774d5e92)
