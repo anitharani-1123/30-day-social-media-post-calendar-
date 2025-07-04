@@ -11,3 +11,4 @@ DOMAIN : DIGITAL MARKETING
 DURATION : 6 WEEKS
 
 MENTOR : NEELA SANTOSH
+![1000011185](https://github.com/user-attachments/assets/71dff338-eed0-43cc-8d1f-d398894a2021)
